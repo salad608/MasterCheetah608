@@ -1,3 +1,3 @@
-Hey, I’m Wolfclaw! (or you can call me MasterCheetah608)
-I’m currently learning c++ as a teenager. I don't do anything on this account yet, but I might in the future.
+Hey, I’m Sarah! (You can also call me salad)
+I’m currently learning C++ as a teenager. I participate in hackathons!
 Social media: https://linktr.ee/MasterCheetah608
